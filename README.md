@@ -11,3 +11,15 @@
 > - Banning (Players will also be coming in this update)
 > - Realm to discord (every bot that i make normally gets this)
 
+----------------------------------------------------------------
+
+# Socals
+
+Our Discord Server: https://discord.gg/72JwFd6VUS
+discord: tsarontopv2
+
+----------------------------------------------------------------
+
+# Status
+
+Unkown / N/A
